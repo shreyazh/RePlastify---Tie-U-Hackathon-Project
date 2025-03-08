@@ -1,1 +1,1 @@
-* ⭐ RePlastify Hackathon Winnning Project 🏆 *
+**⭐ RePlastify Hackathon Winnning Project 🏆**
